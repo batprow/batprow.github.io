@@ -1,6 +1,6 @@
 Política de privacidad
 
-Última actualización: 29 de julio de 2017
+Última actualización: 11 de julio de 2017
 
 Introducción
 
